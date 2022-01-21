@@ -1,3 +1,3 @@
 # hello-world
-ekrana merhaba dünya yazar
-deneme ayhan  kjskgslhadfkljda.
+ayşe duru
+elif defne
